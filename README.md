@@ -9,5 +9,5 @@ Meu nome é Vinicius Verghetti
 - Utilizo esse espaço para minha organização e compartilhamento de Projetos Desenvolvidos
 
 
-![]()https://media1.tenor.com/m/ZBE9HDzoXL0AAAAC/killua-hx-h.gif
+![](https://media1.tenor.com/m/ZBE9HDzoXL0AAAAC/killua-hx-h.gif)
 
