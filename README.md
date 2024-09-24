@@ -9,4 +9,4 @@ Meu nome é Vinicius Verghetti
 - Utilizo esse espaço para minha organização e compartilhamento de Projetos Desenvolvidos
 
 
-![]()https://tenor.com/pt-BR/view/wave-joe-gif-10073393001027262219
+![]() https://tenor.com/pt-BR/view/wave-joe-gif-10073393001027262219
